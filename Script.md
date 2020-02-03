@@ -2,7 +2,7 @@
 
 ## Synopsis
 
-George discovers a hidden gate behind the zoo.
+A young boiy discovers a hidden gate behind the zoo.
 Behind it, he finds a magical world of unicorns living in perfect peace and harmony where he discovers the meaning of imagination.
 
 ## Plot
