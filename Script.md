@@ -21,6 +21,14 @@ He stuck his head in the door, the colours of the foliage were intense greens, b
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
+Suddenly George heard a noise at his feet. I small mouse in an official-looking hat had appeared in fron of him, and sprang back in alarm: "Don't step on me, boy!" it squeaked, "What are you doing in here anyway? This zoo is for animals."
+
+"Who are you?" inquired George, wondering vaguely why this mouse could talk.
+
+"I'm Braus the Mouse, Grand Zookeeper in da house!" said the mouse, in as grand a voice as it could muster. "What are you doing in here, uh, what was your name...?"
+
+"I'm George, and the door was open."
+
 George met the Unicorn King who granted him magic powers.
 The end.
 
