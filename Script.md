@@ -2,13 +2,13 @@
 
 ## Synopsis
 
-A young boiy discovers a hidden gate behind the zoo.
+George discovers a hidden gate behind the zoo.
 Behind it, he finds a magical world of unicorns living in perfect peace and harmony where he discovers the meaning of imagination.
 
 ## Plot
 
 George woke to the sound of traffic, the sky was grey.
-After his typical breakfast of toast and and eggs he left for school.
+After his typical breakfast of toast and eggs he left for school.
 Normally George would have walked down Bleaker Street, but today there was construction and he decided to take Flanders behind the zoo.
 
 Being on time was not one of George’s specialities, and today would prove to be no different, as he moved slowly.
