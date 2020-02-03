@@ -29,7 +29,9 @@ Suddenly George heard a noise at his feet. I small mouse in an official-looking 
 
 "I'm George, and the door was open."
 
-George met the Unicorn King who granted him magic powers.
+No sooner had George uttered those words, than he was to set in motion an adventure which would make Curious George seem introverted, and Harry Potter's life seem boring. It was a caper so vast in scope, and with more important details than the number of ants on your weirdo cousin's ant farm, that the particulars of which are too numerous and weighty to deliver at this present moment. Suffice to say, that George's life was changed forever, and he was late for school, and he wsa even ready for second breakfast by the time he returned to the master branch of reality.
+
+It was, also, the adventure at the end of which George met the Unicorn King, who granted him magic powers.
 The end.
 
 ## Cast
